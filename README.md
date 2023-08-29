@@ -1,1 +1,1 @@
-  Bullish 🐄
+All In
